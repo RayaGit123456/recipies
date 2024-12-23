@@ -1,6 +1,4 @@
 Chickpea and Spinach Curry 🥙 from eat is good
-1222222222222222222222222222222
-===========================
 
 Ingredients:
 - 1 can of chickpeas, drained and rinsed
